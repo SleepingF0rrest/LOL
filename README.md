@@ -1,2 +1,2 @@
-# LOL
-lol?
+# League of legends
+
